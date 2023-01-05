@@ -8,3 +8,5 @@ she/they!
 
 
 ![Ah](https://raw.githubusercontent.com/jellyfoxx/jellyfoxx/main/unknown.png)
+
+also whoever took the username jellyfox without an extra x in like 2012, i just want to talk
